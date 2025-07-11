@@ -35,3 +35,4 @@ I love solving puzzles and playing chess in my free time! 😜
 love to read new literature 😉 
 Feel free to explore my repositories and reach out if you have any questions or collaboration ideas! 💡 
 
+[publications](https://www.researchgate.net/profile/Sachith-Yamannage-2">Sachith Yamannage on ResearchGate)
